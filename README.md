@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I love to design and develop software applications. What I love most about my line of work is the impact it creates: both for the companies I work for and the customers that the company serves. 
+
+I believe there are only two avenues where one person does the work, and possibly millions or even billions of people can derive the benefit from the work. One is building businesses, the other is software development. And I feel pretty fortunate to have selected one of these as my career path. But naturally, I also have other business-related interests like economics, finance, investment, marketing, etc. 
+
+I am really respectful of all kinds of work that people do, and whenever possible, I talk to people who have completely different fields of work and try to understand the nuances of what they do. The small annoyances, the big problems, to the moments of happiness, all give me a varied perspective of what is possible. Also, it makes me realise that neither I nor most other people outside of their field know about what goes in the trenches for people.
+
+Besides this, I have always tried to think in second-order and higher-order terms, i.e. thinking beyond what's obvious to most people about any situation or scenario. That has given me quite an advantage and success in investing in paper assets, another field I try to learn actively about.
